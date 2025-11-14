@@ -1,1 +1,2 @@
 Never give up!
+Never surrender!
